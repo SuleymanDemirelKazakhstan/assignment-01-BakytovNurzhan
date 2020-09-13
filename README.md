@@ -1,1 +1,1 @@
-# DUMMY TEXT
+Nurzhan Bagytov 190107100
